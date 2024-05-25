@@ -2,7 +2,7 @@
 - 👀 I’m new to coding
 - 🌱 I’m currently learning html and css
 - 💞️ I’m looking forward to become a frontend developer
-- 📫 U can text me in telegram "aboltusikkk or in instagram direct "Aboltusik0"
+- 📫 U can text me in telegram "aboltusikkk" or in instagram direct "Aboltusik0"
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am 14 y.o. and i can speak both english and russian
 
