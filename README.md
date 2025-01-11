@@ -4,7 +4,7 @@
 - 💞️ I’m looking forward to become a frontend developer
 - 📫 U can text me in telegram "aboltusikkk" or in instagram direct "Aboltusik0"
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am 14 y.o. and i can speak both english and russian
+- ⚡ Fun fact: I am 15 y.o. and i can speak both english and russian
 
 <!---
 Aboltusik0/Aboltusik0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
